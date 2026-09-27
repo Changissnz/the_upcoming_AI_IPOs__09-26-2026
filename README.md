@@ -31,6 +31,10 @@ of the field as well as the morality, as subjective as that sounds, then
 they should lose money that they can't recover. And then they should exit 
 from investing in the field anymore. 
 
+> It's like, "yeahhh! So you had your time to shine and parade around.
+> And now the results demonstrate your poor acumen for actually advancing
+> the field! Would you kindly exit, now?!" 
+
 Truthfully, there should be a big mainstream media announcement: 
 > A.I. Winter Has Hit. Extremely Cold Front From Northern Eurasia To Set
 > In For At Least A Decade.
@@ -90,3 +94,11 @@ a deathbed, a death sentence in the name of. Killing in the name of. And then fo
 to watch their loved ones, wriggling and squirming in the pain and suffering that A.I. 
 has caused and will even further, and for them to finally admit "what a pathetic excuse 
 for tyrannical policy, going on for more than a decade". It's only fair. 
+
+> Just going off the news articles, some of which have to be sensationalist. They give
+> the sense of
+> "we just opened up Pandora's Box. Have fun!"
+> "we made this thing that can destroy and disgrace people!"
+> "you can use this product, after shaking the Devil's hand! Superstition!"
+> "you're no longer needed anymore. You're just a tool to begin with! A cog in the
+> imperialist machine!" 
