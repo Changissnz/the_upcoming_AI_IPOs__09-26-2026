@@ -76,3 +76,6 @@ career to be entirely for the development of A.I. I am looking to depart from th
 eyes and ears of some people, mainly because of the annoyances, fickleness, and 
 uselessness. 
 
+And I think people in the US Government as well as the corporatists should come to 
+feel how badly they f* up with the A.I. thing. It's only fair. 
+
