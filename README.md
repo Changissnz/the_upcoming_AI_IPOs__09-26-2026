@@ -79,7 +79,7 @@ uselessness.
 And I think people in the US Government as well as wealthy corporatists should come to 
 feel how badly they f* up with the A.I. thing. A feeling of unbearable and soul-crushing 
 disappointment, just like the development of A.I. Why not just jump off a skyscraper, 
-when there's empty offices due to remote work being the thing now? An infinitesimal length 
+when there's empty office space due to remote work being the thing now? An infinitesimal length 
 till perfection but never perfect, operated on imported chips. The price to pay for letting 
 down the populace. One model after the next after the next, like products from fashion 
 corporations in the fashion industry. A complete letdown. Absolute betrayal of the expectations. 
