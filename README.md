@@ -60,7 +60,7 @@ some people that think there are so many breakthroughs going on now. That to me
 is more appalling than the advancements themselves. You know how some people, 
 they think they're so spiritual or something after being hopped up on all the 
 rave drugs, the ones that claim they have one breakthrough after another breakthrough 
-after another, getting smarter and smarter every time, every time racking up 
+after another, getting wiser and smarter and wiser every time, every time racking up 
 threes and tens of sexual partners in the process. That's how I interpret the 
 big "WHOOP WHOOP AI is advancing so fast!" claims. The gall of some people 
 demands they assume their audience is a terminally naive teenage audience. It's 
