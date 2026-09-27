@@ -85,4 +85,7 @@ in the fashion industry. A complete letdown. Absolute betrayal of the expectatio
 Total injustice for the offenses to human dignity, the price to pay for the development 
 of A.I. and alas... all that for nothing. Or nothing of any good, specifically. And then the 
 makers of these A.I.s and their wealthy sponsors, chained to the fruits of their labor, 
-a deathbed, a death sentence in the name of. Killing in the name of. It's only fair. 
+a deathbed, a death sentence in the name of. Killing in the name of. And then for them 
+to watch their loved ones, wriggling and squirming in the pain and suffering that A.I. 
+has caused and will even further, and for them to finally admit "what a pathetic excuse 
+for tyrannical policy, going on for more than a decade". It's only fair. 
