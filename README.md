@@ -77,5 +77,6 @@ eyes and ears of some people, mainly because of the annoyances, fickleness, and
 uselessness. 
 
 And I think people in the US Government as well as the corporatists should come to 
-feel how badly they f* up with the A.I. thing. It's only fair. 
+feel how badly they f* up with the A.I. thing. A feeling of disappointment, just like 
+A.I. An infinitesimal length till perfection, run on imported chips. It's only fair. 
 
