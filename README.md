@@ -82,7 +82,7 @@ disappointment, just like the development of A.I. An infinitesimal length till p
 but never perfect, operated on imported chips. The price to pay for letting down the 
 populace. One model after the next after the next, like products from fashion corporations 
 in the fashion industry. A complete letdown. Absolute betrayal of the expectations. 
-Total injustice to the offenses to human dignity, the price to pay for the development 
-of A.I. and alas... all for nothing. Or nothing of any good, specifically. And then the 
+Total injustice for the offenses to human dignity, the price to pay for the development 
+of A.I. and alas... all that for nothing. Or nothing of any good, specifically. And then the 
 makers of these A.I.s and their wealthy sponsors, chained to the fruits of their labor, 
 a deathbed, a death sentence in the name of. Killing in the name of. It's only fair. 
