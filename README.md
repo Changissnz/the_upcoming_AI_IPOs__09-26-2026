@@ -78,5 +78,6 @@ uselessness.
 
 And I think people in the US Government as well as wealthy corporatists should come to 
 feel how badly they f* up with the A.I. thing. A feeling of disappointment, just like 
-A.I. An infinitesimal length till perfection, operated on imported chips. The price to 
-pay for letting down the populace. It's only fair. 
+A.I. An infinitesimal length till perfection but never perfect, operated on imported 
+chips. The price to pay for letting down the populace. One model after the next after 
+the next, like products from fashion corporations in the fashion industry. It's only fair. 
