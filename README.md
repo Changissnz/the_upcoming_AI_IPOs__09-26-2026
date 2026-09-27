@@ -77,7 +77,8 @@ eyes and ears of some people, mainly because of the annoyances, fickleness, and
 uselessness. 
 
 And I think people in the US Government as well as wealthy corporatists should come to 
-feel how badly they f* up with the A.I. thing. A feeling of disappointment, just like 
-A.I. An infinitesimal length till perfection but never perfect, operated on imported 
-chips. The price to pay for letting down the populace. One model after the next after 
-the next, like products from fashion corporations in the fashion industry. It's only fair. 
+feel how badly they f* up with the A.I. thing. A feeling of unbearable and soul-crushing 
+disappointment, just like the development of A.I. An infinitesimal length till perfection 
+but never perfect, operated on imported chips. The price to pay for letting down the 
+populace. One model after the next after the next, like products from fashion corporations 
+in the fashion industry. It's only fair. 
