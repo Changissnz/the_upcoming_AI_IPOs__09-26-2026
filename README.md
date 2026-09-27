@@ -97,8 +97,8 @@ for tyrannical policy, going on for more than a decade". It's only fair.
 
 > Just going off the news articles, some of which have to be sensationalist. They give
 > the sense of
->> "we just opened up Pandora's Box. Have fun!"
->> "we made this thing that can destroy and disgrace people!"
->> "you can use this product, after shaking the Devil's hand! Superstition!"
->> "you're no longer needed anymore. You're just a tool to begin with! A cog in the
+>> - "we just opened up Pandora's Box. Have fun!"
+>> - "we made this thing that can destroy and disgrace people!"
+>> - "you can use this product, after shaking the Devil's hand! Superstition!"
+>> - "you're no longer needed anymore. You're just a tool to begin with! A cog in the
 >> imperialist machine!" 
